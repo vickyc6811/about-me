@@ -24,3 +24,15 @@ Schedule
 7. Take a shower and eat dinner.
 
 8. Bedtime.
+
+KPOP GROUPS I STAN
+
+BTS
+TWICE
+BLACKPINK
+TXT
+ITZY
+ATEEZ
+ENHYPEN
+LOONA
+STRAY KIDS
