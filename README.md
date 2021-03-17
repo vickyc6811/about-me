@@ -53,14 +53,14 @@ vickyc6811@hstat.org
 
 #### Bucket List
 
-go to kpop concerts of the groups i stan
+* go to kpop concerts of the groups i stan
 
-go to kcon
+* go to kcon
 
-travel around the world especially seoul, korea
+* travel around the world especially seoul, korea
 
-get rich of course
+* get rich of course
 
-get my dream career
+* get my dream career
 
-get into photography/film hobby
+* get into photography/film hobby
