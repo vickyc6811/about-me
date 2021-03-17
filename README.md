@@ -1,13 +1,15 @@
-# about-me
-Vicky Chen
+# Vicky Chen
+### Student
 
-High School of Telecommunications Arts and Technology
+[ _High School of Telecommunications Arts and Technology_ ]( https://www.hstat.org )
 
 vickyc6811@hstat.org
 
-Vicky is 16 years old. Born of February 19th 2005. She has 1 older brother. Currently living in New York.
+**Vicky is 16 years old. Born of February 19th 2005. She has 1 older brother. Currently living in New York.**
 
-Schedule 
+---  
+
+#### Schedule
 
 1. Wake up and brush teeth/wash face.  
 
@@ -25,14 +27,40 @@ Schedule
 
 8. Bedtime.
 
-KPOP GROUPS I STAN
+---  
 
-BTS
-TWICE
-BLACKPINK
-TXT
-ITZY
-ATEEZ
-ENHYPEN
-LOONA
-STRAY KIDS
+* #### KPOP GROUPS I STAN
+
+  * loona
+
+  * bts
+
+  * blackpink
+
+  * twice
+
+  * txt
+
+  * itzy
+
+  * ateez
+
+  * enhypen
+
+  * stray kids
+
+---  
+
+#### Bucket List
+
+go to kpop concerts of the groups i stan
+
+go to kcon
+
+travel around the world especially seoul, korea
+
+get rich of course
+
+get my dream career
+
+get into photography/film hobby
