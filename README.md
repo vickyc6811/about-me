@@ -5,7 +5,7 @@
 
 vickyc6811@hstat.org
 
-**Vicky is 16 years old. Born of February 19th 2005. She has 1 older brother. Currently living in New York.**
+**Vicky is 16 years old. Born on February 19th 2005. She has 1 older brother. Currently living in New York.**
 
 ---  
 
@@ -21,7 +21,7 @@ vickyc6811@hstat.org
 
 5. Eat lunch.
 
-6. Play videogames/listen to some music
+6. Play videogames/listen to some music.
 
 7. Take a shower and eat dinner.
 
