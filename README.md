@@ -5,7 +5,7 @@
 
 vickyc6811@hstat.org
 
-**Vicky is 16 years old. Born of February 19th 2005. She has 1 older brother. Currently living in New York.**
+**16 years old. Born February 19th, 2005. Has 1 older brother. Currently living in New York.**
 
 ---  
 
