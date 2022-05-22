@@ -25,42 +25,12 @@ vickyc6811@hstat.org
 
 7. Take a shower and eat dinner.
 
-8. Bedtime.
+8. Bedtime. 
+
 
 ---  
 
-* #### KPOP GROUPS I STAN
+#### HOBBYS
 
-  * loona
-
-  * bts
-
-  * blackpink
-
-  * twice
-
-  * txt
-
-  * itzy
-
-  * ateez
-
-  * enhypen
-
-  * stray kids
-
----  
-
-#### Bucket List
-
-* go to kpop concerts of the groups i stan
-
-* go to kcon
-
-* travel around the world especially seoul, korea
-
-* get rich of course
-
-* get my dream career
-
-* get into photography/film hobby
+* collect kpop albums
+* play videogames
